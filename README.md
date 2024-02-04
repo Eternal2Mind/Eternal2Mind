@@ -3,4 +3,3 @@
 - How to reach me:
 -   Instagram = eternal_2925
 -   Discord = eternalmind
--   
